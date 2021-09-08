@@ -1,4 +1,4 @@
-### Hi there,[Abdou-96][Kaggle] 👋
+### Hi there, I'm [Abdou-96]👋
 
 
 ## I'm a PhD student, Programmer, Developer, and Engineer !!
